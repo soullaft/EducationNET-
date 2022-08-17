@@ -12,5 +12,6 @@ Here's channels i personally recommend:
   
   https://www.youtube.com/c/codaza-channel
 
-
-https://www.youtube.com/c/binarythistle
+  https://www.youtube.com/c/binarythistle
+  
+  https://www.youtube.com/c/Kulibins1

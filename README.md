@@ -15,3 +15,5 @@ Here's channels i personally recommend:
   https://www.youtube.com/c/binarythistle
   
   https://www.youtube.com/c/Kulibins1
+
+  https://www.youtube.com/c/PatrickGod

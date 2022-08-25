@@ -17,3 +17,5 @@ Here's channels i personally recommend:
   https://www.youtube.com/c/Kulibins1
 
   https://www.youtube.com/c/PatrickGod
+
+  https://www.youtube.com/c/dotNET

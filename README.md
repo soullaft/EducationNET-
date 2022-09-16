@@ -31,3 +31,5 @@ Books i personally recommend:
 
 ![image](https://user-images.githubusercontent.com/31139781/189395045-69342043-92f1-4390-bf0d-9ae0e4bd51f8.png)
 
+![image](https://user-images.githubusercontent.com/31139781/190714706-48d46f1d-c441-42c5-a68e-193ef9866a02.png)
+
